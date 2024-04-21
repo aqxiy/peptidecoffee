@@ -1,8 +1,11 @@
 # peptidecoffee
-### Weirdly optimized coffee
+
+## Weirdly optimized coffee
 
 
-Ceramic cup
+## Ceramic cup
+
+### Steps
 
 200 ml freezer unit filtered water, heated in electric kettle, measure with Karter 50 mL beaker
 
@@ -52,6 +55,8 @@ Stir
 
 Drink
 
+
+## Notes
 
 Times valid to within reasonable error
 
