@@ -93,4 +93,8 @@ Collagen Petides
 https://amzn.to/4d9SIU3
 
 
+Curious about where the PC and audio industries lie?
 
+https://github.com/aqxiy/tech
+
+https://github.com/aqxiy/audio
