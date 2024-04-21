@@ -3,7 +3,7 @@
 ## Weirdly optimized coffee
 
 
-## Ceramic cup
+## Ceramic cup [recommendation at end]
 
 ### Steps
 
