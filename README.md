@@ -7,7 +7,7 @@
 
 ### Steps
 
-200 ml freezer unit filtered water, heated in electric kettle, measure with Karter 50 mL beaker
+200 ml freezer unit filtered water, heated to boiling in electric kettle, measure with Karter 50 mL beaker
 
 5 mL distilled white vinegar measured with oral syringe and allowed to naturally disperse (Heinz All Natural Distilled White Vinegar / Brandzig 1 mL syringes)
 
