@@ -60,6 +60,12 @@ Drink
 
 Times valid to within reasonable error
 
+Always wait at least approx 5 seconds prior to stirring
+
+For simplicity and consistency, stir clockwise, reasonable speed/resistance, around 10 seconds
+
+Good stirring spoon is a largish teaspoon
+
 Stir with below spoon clockwise medium speed for min 7 seconds but remove spoon therafter 
 
 Affordable quality cup
