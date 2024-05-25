@@ -5,6 +5,8 @@
 
 ## Ceramic cup [recommendation at end]
 
+## Ultimately - rejuvenates thoroughly until eventually prompting hyper feeling. Stop dosing once here. Takes days to get there. Either dose daily or allow breaks on journey.
+
 ### Steps
 
 200 ml freezer unit filtered water, heated to boiling in electric kettle, measure with Karter 50 mL beaker
