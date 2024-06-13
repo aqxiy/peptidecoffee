@@ -71,34 +71,34 @@ Good stirring spoon is a largish teaspoon
 Stir with below spoon clockwise medium speed for min 7 seconds but remove spoon therafter 
 
 Affordable quality cup
-https://amzn.to/3UsDZfy
+https://www.amazon.com/Urbanstrive-Coffee-Dreamer-Nothing-Novelty/dp/B08TCDT1TQ
 
 Beakers
-https://amzn.to/4d49SCC
+https://www.amazon.com/AmazonBasics-Stainless-Steel-Dinner-Spoons/dp/B0736THH7G
 
 Good choice stirring spoon: Amazon Basics Stainless Steel Dinner Spoons
 https://amzn.to/3JsPGwD
 
 Good choice measuring spoon
-https://amzn.to/3W5K6YA
+https://www.amazon.com/Stainless-Tablespoon-Measuring-tablespoon-Container/dp/B08TRPTL7D
 
 Apple Cider Vinegar
-https://amzn.to/3xKP9Up
+https://www.amazon.com/Bragg-Organic-Apple-Vinegar-Bottle/dp/B01DKW9XBQ
 
 White Vinegar
-https://amzn.to/3U8dmv9
+https://www.amazon.com/Heinz-Vinegar-Distilled-White-32/dp/B000RAB7F0
 
 Syringes
-https://amzn.to/3xHOz9D
+https://www.amazon.com/1ml-Syringe-Individually-Medicine-Administration/dp/B07GX4RJF3
 
 Sugar
-https://amzn.to/3Qdlut5
+https://www.amazon.com/Florida-Crystals-Demerara-Sugar-Pack/dp/B00AWT9U9Q
 
 Coffee
-https://amzn.to/3U0bRiE
+https://www.amazon.com/Nescafe-Tasters-Choice-Instant-Coffee/dp/B01FDLA52I
 
 Collagen Petides
-https://amzn.to/4d9SIU3
+https://www.amazon.com/Vital-Proteins-Collagen-Unflavored-Supplement/dp/B08HL3RXXZ
 
 
 Curious about where the PC and audio industries lie?
