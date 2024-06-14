@@ -74,6 +74,8 @@ Stir with below spoon clockwise medium speed for min 7 seconds but remove spoon 
 
 Drink some, lithegulp some, drink some; roughly 5-10 sec separation 
 
+## Probable purchases
+
 Affordable quality cup
 https://www.amazon.com/Urbanstrive-Coffee-Dreamer-Nothing-Novelty/dp/B08TCDT1TQ
 
