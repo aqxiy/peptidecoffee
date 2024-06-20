@@ -80,10 +80,10 @@ Affordable quality cup
 https://www.amazon.com/Urbanstrive-Coffee-Dreamer-Nothing-Novelty/dp/B08TCDT1TQ
 
 Beakers
-https://www.amazon.com/AmazonBasics-Stainless-Steel-Dinner-Spoons/dp/B0736THH7G
+http://amazon.com/Griffin-Borosilicate-Graduated-Karter-Scientific/dp/B006VXCOD6
 
 Good choice stirring spoon: Amazon Basics Stainless Steel Dinner Spoons
-https://amzn.to/3JsPGwD
+https://www.amazon.com/AmazonBasics-Stainless-Steel-Dinner-Spoons/dp/B0736THH7G
 
 Good choice measuring spoon
 https://www.amazon.com/Stainless-Tablespoon-Measuring-tablespoon-Container/dp/B08TRPTL7D
