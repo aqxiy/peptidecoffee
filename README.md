@@ -109,6 +109,6 @@ https://www.amazon.com/Vital-Proteins-Collagen-Unflavored-Supplement/dp/B08HL3RX
 
 Curious about where the PC and audio industries lie?
 
-https://github.com/aqxiy/tech
+https://github.com/aqxiy/techreccs
 
-https://github.com/aqxiy/audio
+https://github.com/aqxiy/audioreccs
