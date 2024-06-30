@@ -105,10 +105,3 @@ https://www.amazon.com/Nescafe-Tasters-Choice-Instant-Coffee/dp/B01FDLA52I
 
 Collagen Petides
 https://www.amazon.com/Vital-Proteins-Collagen-Unflavored-Supplement/dp/B08HL3RXXZ
-
-
-Curious about where the PC and audio industries lie?
-
-https://github.com/aqxiy/techreccs
-
-https://github.com/aqxiy/audioreccs
