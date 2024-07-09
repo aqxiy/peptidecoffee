@@ -74,6 +74,10 @@ Stir with below spoon clockwise medium speed for min 7 seconds but remove spoon 
 
 Drink some, lithegulp some, drink some; roughly 5-10 sec separation 
 
+OR
+
+https://github.com/gotDoubleDots/linker
+
 ## Probable purchases
 
 Affordable quality cup
