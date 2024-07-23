@@ -1,7 +1,7 @@
 # peptidecoffee
 
 ## Weirdly optimized coffee
-### A general purpose offshoot: https://github.com/aqxiy/ifc
+### A general purpose offshoot: https://github.com/aqxiy/mcoffee
 
 ## Ceramic cup [recommendation at end]
 
