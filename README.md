@@ -99,10 +99,10 @@ Syringes
 https://www.amazon.com/1ml-Syringe-Individually-Medicine-Administration/dp/B07GX4RJF3
 
 Sugar
-https://www.amazon.com/Florida-Crystals-Demerara-Sugar-Pack/dp/B00AWT9U9Q
+https://www.instacart.com/products/19535440-simply-nature-organic-cane-sugar-32-oz
 
 Coffee
 https://www.amazon.com/Nescafe-Tasters-Choice-Instant-Coffee/dp/B01FDLA52I
 
 Collagen Petides
-https://www.amazon.com/Vital-Proteins-Collagen-Unflavored-Supplement/dp/B08HL3RXXZ
+https://www.amazon.com/Orgain-Collagen-Peptides-Probiotics-Unflavored/dp/B0C6V55W2C/
