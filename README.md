@@ -36,7 +36,7 @@ Stir
 
 3 min wait
 
-Add collagen peptides (Orgain with Probiotics) 1.75 tbsp+ but don't use spoon; rather pour
+Add collagen peptides (Orgain Collagen Peptides + Probiotics, Unflavored, 1.6 lbs https://www.amazon.com/Orgain-Collagen-Peptides-Probiotics-Unflavored/dp/B0C6V55W2C/) 1.75 tbsp+ but don't use spoon; rather pour
 
 5 sec wait
 
