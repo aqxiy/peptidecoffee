@@ -4,7 +4,7 @@
 ### A general purpose offshoot: https://github.com/aqxiy/ifc
 ### But also a utilable coffee for brain enlivening, not a daily but more a long term hack: https://github.com/aqxiy/inExt-coffee
 
-There may be a way to sequence coffees for brain benefit. I would say peptidecoffee, coffee, mpcoffee, ifc, mcoffee, inExt-coffee
+There may be a way to sequence coffees for brain benefit. I would say peptidecoffee, coffee, mpcoffee, ifc, mcoffee, inExt-coffee ;; maybe peptide coffee in-between as well. Otherwise that initiating order respected. Idea is to ultimately "fill up" on something. 
 
 ## Ceramic cup [recommendation at end]
 
