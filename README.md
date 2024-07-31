@@ -73,11 +73,10 @@ Stir with below spoon clockwise medium speed for min 7 seconds but remove spoon 
 
 ## Additional Dosing Instructions
 
-Drink some, lithegulp some, drink some; roughly 5-10 sec separation 
+Best 3 mins after around 20 raisins on an empty stomach
 
-OR
 
-https://github.com/gotDoubleDots/linker
+
 
 ## Probable purchases
 
