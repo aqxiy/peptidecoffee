@@ -24,23 +24,23 @@ Stir
 
 1 min wait
 
-Sugar 1 tbsp (Florida Crystals Turbinado Sugar {NOT organic})
+Sugar 1 tbsp (ALDI Organic White Cane Sugar)
 
 Stir
 
 2-3 min wait
 
-Coffee 1 tbsp (Nescafe Taster’s Cafe House Blend light-medium Instant Coffee)
+Coffee 1.5 tbsp (Nescafe Taster’s Cafe House Blend light-medium Instant Coffee) (poured off small ceramic plate)
 
 Stir
 
 3 min wait
 
-Add collagen peptides Vital Proteins 1 tbsp+ but don't use spoon; rather pour
+Add collagen peptides (Orgain with Probiotics) 1.75 tbsp+ but don't use spoon; rather pour
 
 5 sec wait
 
-Stir
+Stir (then, clean off spoon, being sure cold filtered water rinse comes at end)
 
 5 min wait
 
@@ -74,9 +74,6 @@ Stir with below spoon clockwise medium speed for min 7 seconds but remove spoon 
 ## Additional Dosing Instructions
 
 Best 3 mins after around 20 raisins on an empty stomach
-
-
-
 
 ## Probable purchases
 
