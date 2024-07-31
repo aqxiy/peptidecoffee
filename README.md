@@ -1,7 +1,8 @@
 # peptidecoffee
 
 ## Weirdly optimized coffee
-### A general purpose offshoot: https://github.com/aqxiy/inExt-coffee
+### A general purpose offshoot: https://github.com/aqxiy/ifc
+### But also a utilable coffee for brain enlivening, not a daily but more a long term hack: https://github.com/aqxiy/inExt-coffee
 
 ## Ceramic cup [recommendation at end]
 
