@@ -30,7 +30,7 @@ Stir
 
 2-3 min wait
 
-Coffee 1.5 tbsp (Nescafe Taster’s Cafe House Blend light-medium Instant Coffee) (poured off small ceramic plate)
+Coffee 1.5 tbsp (Nescafe Taster’s Cafe House Blend light-medium Instant Coffee) (poured off small ceramic plate with even~ness in mind)
 
 Stir
 
