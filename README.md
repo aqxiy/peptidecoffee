@@ -24,7 +24,7 @@ Stir
 
 1 min wait
 
-Sugar 1 tbsp (ALDI Organic White Cane Sugar)
+Sugar 1 tbsp (Simply Nature Organic Cane Sugar)
 
 Stir
 
