@@ -4,6 +4,8 @@
 ### A general purpose offshoot: https://github.com/aqxiy/ifc
 ### But also a utilable coffee for brain enlivening, not a daily but more a long term hack: https://github.com/aqxiy/inExt-coffee
 
+There may be a way to sequence coffees for brain benefit. I would say peptidecoffee, coffee, mpcoffee, mcoffee, inExt-coffee
+
 ## Ceramic cup [recommendation at end]
 
 ## Ultimately - rejuvenates thoroughly until eventually prompting hyper feeling. Stop dosing once here. Takes days to get there. Either dose daily or allow breaks on journey.
